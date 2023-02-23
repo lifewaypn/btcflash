@@ -36,4 +36,4 @@
 
 ### Contact US: 
 
-Telegram: https://telegram.me/btcflashingtools or https://t.me/btcflashingtools or Website: https://btcflash.trade/
+Verified Telegram: https://telegram.me/btcflashingtools or https://t.me/btcflashingtools or Website: https://btcflash.trade/
